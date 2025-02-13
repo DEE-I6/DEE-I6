@@ -1,4 +1,4 @@
-![Tumblr_l_77183978872534](https://github.com/user-attachments/assets/1ed3dbe1-4cf3-4e6d-ad70-9f1651b90002)
+![Untitled257_20250213123328](https://github.com/user-attachments/assets/b3cb3985-b149-4535-8fd1-336147e28319)
 
 
 
@@ -7,4 +7,4 @@
 
 
 
-![Tumblr_l_77185349470033](https://github.com/user-attachments/assets/d62019cd-288a-412c-9c13-fc4712c814e6)
+![Untitled257_20250213123318](https://github.com/user-attachments/assets/794a41cd-2a82-46b1-88a2-60b9c7fdc889)
