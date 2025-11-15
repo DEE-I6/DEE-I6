@@ -8,4 +8,4 @@ tf area , mainly with my partner
 
 <h5 align="center"
   
-[strawpg](https://thepoweroftwo2.straw.page/)         [atabook](https://keithgane.atabook.org/)
+[strawpg](https://blackholepilled.straw.page/)         [atabook](https://keithgane.atabook.org/)
